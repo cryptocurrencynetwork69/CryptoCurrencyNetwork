@@ -22,6 +22,6 @@
 - Bounty 5 million CCN
 
 
-- Claim Free 85 million CCN
+- Claim Airdrop 85 million CCN
 
 Join Telegram Group : http://t.me/ccn_network
