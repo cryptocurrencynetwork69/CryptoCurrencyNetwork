@@ -16,6 +16,9 @@
 - Supply 100 million CCN
 
 
+- Development and Team 10 million CCN
+
+
 - Bounty 5 million CCN
 
 
